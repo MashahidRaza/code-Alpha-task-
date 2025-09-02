@@ -1,4 +1,5 @@
 # code-Alpha-task-
+<img width="1245" height="636" alt="Screenshot 2025-09-02 at 10 27 32 AM" src="https://github.com/user-attachments/assets/aee0beb5-28c2-42da-a66d-6d28cbf363ca" />
 
 https://github.com/user-attachments/assets/a398ee73-b686-4240-a21e-269c0f03b0b1
 
